@@ -1,5 +1,6 @@
 Finished first season of Paradise. Very good !!!!
 
+![alt text](https://ntvb.tmsimg.com/assets/p28956879_b_h8_ab.jpg?w=960&h=540)
 
 The 2nd one is even better, but after that we have to wait a long time! 😭
 
